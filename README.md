@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming.
 - 🌱 I’m currently learning .devOps..
 - 💞️ I’m looking to collaborate on .App development..
-- 📫 How to reach me dannmwash@gmail.com...
+- 📫 How to reach me mwangi.dancan2021@students.jkuat.ac.ke...
 - 😄 Pronouns: ...Him
 - ⚡ Fun fact: ...Roses can be blue too
 
